@@ -11,5 +11,7 @@ The last surviving member of the tree-like alien race "Flora colossus", Groot is
 
 > I am Groot
 
+<img src="https://screenrant.com/wp-content/uploads/2017/05/Guardians-of-the-Galaxy-2-Groot-Baby-Groot.jpg"/>
+
 
 
